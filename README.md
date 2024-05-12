@@ -2,6 +2,4 @@
 
 [![400x75static.png](https://i.postimg.cc/HWXvhxNw/400x75static.png)](https://postimg.cc/kDMyVnqG)
 
-[![400x75static.png](https://i.postimg.cc/HWXvhxNw/400x75static.png)](https://postimg.cc/kDMyVnqG)
-
 [ [Telegram Channel](https://t.me/fletchenbeta) ] [ [Telegram Group](https://t.me/fletchenchat) ] [ [Website](https://fletchen.to) ]
